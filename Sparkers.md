@@ -4,5 +4,7 @@ Yes there I said it. Sparkers. No we don't usually say that. But now we do. For 
 * Victoria Jiang
 * Angelina Zhu :3
 * Kevin Jiao
+* Valentina Lin Fang
 * Kevin Jiao
 * Joshua Dylan Ha Jin Chung
+
